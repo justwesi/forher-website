@@ -98,7 +98,6 @@ Pros of having me:
 - will remember even a smallest thing about you
 - Be with u 4life
 - Shoulder to cry on
-- Your pahinga
 - Big effort 4 u
 - I bring peace 
 - will match your energy and wants
